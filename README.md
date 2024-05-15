@@ -1,1 +1,2 @@
-Hi my name prince Magura i am a learner of life
+Hi my name is Prince Magura. I am a student of life
+I am a student a NMU
